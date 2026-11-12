@@ -1,1 +1,1 @@
-https://github.com/ostap09097878-create/first-project
+https://github.com/ostrap123/first-project
