@@ -1,1 +1,1 @@
-https://github.com/ostrap123/first-project
+https://github.com/ostrap123/ostrap123/ono-tebe-nado-ad
